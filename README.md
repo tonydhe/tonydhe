@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tonydhe
-- 👀 I’m interested in girls (for sure).
+- 👀 I’m interested in xxx (for sure).
 - 🌱 I’m currently doing Bachelor of Data Science at the University of Melboure.
 - 📫 How to reach me, please email: deviltonyho@gmail.com
 - https://www.linkedin.com/in/tonynhe/
